@@ -17,3 +17,4 @@ Wie "Der Alte" immer sagte
 > April, April. Übung ist das halbe Leben. Nur kein Moos ansetzen
 
 
+<img src="https://img.nwzonline.de/rf/image_online/NWZ_CMS/NWZ/2014-2016/Produktion/2016/06/10/KULTUR/ONLINE/Bilder/imago_st_0605_10440008_67344470-005.jpg"/>
