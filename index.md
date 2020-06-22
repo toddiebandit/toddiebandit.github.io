@@ -12,3 +12,8 @@ Prochnow schaffte 1981 seinen internationalen Durchbruch mit der Hauptrolle des 
 * weiß was er seiner Mannschaft zumuten kann
 * Kennt sein Boot
 
+Wie "Der Alte" immer sagte
+> Das muss das Boot abkönnen.
+> April, April. Übung ist das halbe Leben. Nur kein Moos ansetzen
+
+
